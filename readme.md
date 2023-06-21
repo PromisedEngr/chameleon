@@ -2,14 +2,6 @@
 
 
 
-## About me
-Nur
-## About clinet
-Tan Zhi Xuan
-skype: live:t.zhixuan318
-
-
-
 
 
 ## HOSTING SERVER
